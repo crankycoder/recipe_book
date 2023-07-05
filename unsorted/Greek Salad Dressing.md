@@ -1,0 +1,9 @@
+- 1/2 cup olive oil
+- 2 tsp oregano
+- 2 tsp basil dried
+- 2 tsp black pepper 
+- 1.5 tsp salt
+- 1.5 tsp onion powder 
+- 1.5 tsp Dijon mustard
+- 3/4 cup red wine vinegar
+- 1/4 cup balsamic vinegar (or to taste)

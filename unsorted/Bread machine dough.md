@@ -1,0 +1,6 @@
+- 1 cup (250g) milk
+- 2 tablespoons white sugar
+- 1 (2 1/4 tsp) package bread machine yeast
+- ¼ cup butter
+- 3 cups (450g) bread flour
+- 1 teaspoon salt

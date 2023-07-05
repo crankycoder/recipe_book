@@ -1,0 +1,6 @@
+- 3 cups flour (637g)
+- 1 cup milk
+- 3 tablespoons white sugar
+- 3 tablespoons butter 
+- 1 ½ teaspoons salt
+- 2 ¼ teaspoons active dry yeast

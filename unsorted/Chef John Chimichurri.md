@@ -1,0 +1,10 @@
+-   1 bunch flat-leaf Italian parsley, stems removed
+-   ½ cup fresh cilantro leaves
+-   ½ cup olive oil
+-   ¼ cup fresh oregano leaves
+-   4 cloves garlic, chopped, or more to taste
+-   3 tablespoons white wine vinegar, or more to taste
+-   ½ teaspoon salt, or to taste
+-   ¼ teaspoon ground cumin
+-   ¼ teaspoon red pepper flakes
+-   ¼ teaspoon freshly ground black pepper

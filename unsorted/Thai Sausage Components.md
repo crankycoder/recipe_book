@@ -1,0 +1,12 @@
+
+-   454 g (1 lb) ground pork    
+-   29 g (~2 tbsp) fish sauce
+-   21 g (~1.5 tbsp) shallots
+-   14 g (~1 tbsp) garlic
+-   14 g (~1 tbsp) ginger
+-   14 g (~1 tbsp) cilantro
+-   2 g (.5 tsp) lemongrass
+-   2 g (.5 tsp) curry powder
+-   2 g (.5 tsp) black pepper
+-   2 g (.5 tsp) red Thai chilis
+-   1 g (.25 tsp) lime zest
